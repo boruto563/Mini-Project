@@ -1,1 +1,1 @@
-https://boruto563.github.io/Mini-Project/
+https://shatrughan007.github.io/Mini-Project/
